@@ -1,4 +1,4 @@
-## Hi, I am Neha.
+## Hi, I am Neha Raj.
 
 I am a Computer Engineering student at UMass Amherst in the Commonwealth Honors College, pursuing a minor in Business. 
 
